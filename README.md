@@ -1,1 +1,1 @@
-## Check Out : [lizchaitanya.space](http://lizchaitanya.space)
+## Check Out : [liz.is-a.dev](http://liz.is-a.dev)
